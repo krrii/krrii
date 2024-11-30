@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @krrii
+- 👀 I like volleyball
+- 🌱 I’m 11 years old
+- 💞️ I have a dog her name Dafi
